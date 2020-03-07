@@ -1,0 +1,1 @@
+# Sharpe-Ratio-Magalu-ViaVarejo-Vs-Ibov
